@@ -1,0 +1,2 @@
+# FUCKTHESCHOOL
+Test fist time
